@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BOBOBASAM
 - 👀 I’m interested in know what to do next
-- 🌱 I’m currently learning what not to do
+- 🌱 I’m currently learning I don't have a clue what to do
 - 💞️ I’m looking to collaborate on how to even start using this stuff
-- 📫 How to reach me merrick913@gmail.com 
+- 📫 How to reach merrick913@gmail.com 
